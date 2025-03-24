@@ -1,0 +1,1 @@
+Linguagem técnica de programação!
